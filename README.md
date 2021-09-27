@@ -1,0 +1,4 @@
+- 👋 I’m @VarrioAleksi
+- 👀 Software and Game Developer
+- 🌱 I’m currently studying IT in Oulu University of Applied Sciences
+- 📫 Reach me in Twitter @aleksivarrio
